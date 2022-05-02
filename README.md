@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JuanMoraGomz19
+- 👀 I’m interested in in soccer and development at software
+- 🌱 I’m currently learning development of websites
